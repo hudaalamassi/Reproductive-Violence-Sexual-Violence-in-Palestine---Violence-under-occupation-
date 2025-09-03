@@ -11,6 +11,8 @@ English:
 
 [Can the ICC Call It What It Is? Addressing Israel’s Impunity for Sexual Violence in Palestine](https://4genderjustice.org/our-latest-posts/can-the-icc-call-it-what-it-is-addressing-israels-impunity-for-sexual-violence-in-palestine/)
 
+[Sexual and gender-based violence against Palestinians during the Gaza war](https://en.wikipedia.org/wiki/Sexual_and_gender-based_violence_against_Palestinians_during_the_Gaza_war)
+
 
 Arabic:
 
