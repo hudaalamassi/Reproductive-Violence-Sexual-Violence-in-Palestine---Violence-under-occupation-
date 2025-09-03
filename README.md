@@ -20,11 +20,3 @@ Arabic:
 
 [لا عدالة إنجابية أو جنسانية دون غزة، السودان، الكونغو والجنوب العالمي](https://feministconsciousnessrevolution.wordpress.com/2024/05/31/%d9%84%d8%a7-%d8%b9%d8%af%d8%a7%d9%84%d8%a9-%d8%a5%d9%86%d8%ac%d8%a7%d8%a8%d9%8a%d8%a9-%d8%a3%d9%88-%d8%ac%d9%86%d8%b3%d8%a7%d9%86%d9%8a%d8%a9-%d8%af%d9%88%d9%86-%d8%ba%d8%b2%d8%a9%d8%8c-%d8%a7%d9%84/)
 
-Testimonies:
-
-[Instagram Post](https://www.instagram.com/p/C-B6lRmNsvP/)
-
-
-
-
-
