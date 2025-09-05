@@ -1,4 +1,4 @@
-A prospective project exploring what data can reveal about violence against women under occupation. This is a new idea I haven’t started working on yet—if it sparks your interest, feel free to begin your own work or reach out; we might collaborate on it.
+A prospective project exploring what data can reveal about violence against women by the occupation. This is a new idea I haven’t started working on yet—if it sparks your interest, feel free to begin your own work or reach out; we might collaborate on it.
 
 * I did not think through yet of what I will do exactly, so first I am gathering resources.
 
